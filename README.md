@@ -8,6 +8,7 @@
 
 ![qwewqa](https://user-images.githubusercontent.com/103065205/230814327-35787d40-50e6-4f0d-913f-25d5930934c8.JPG)
 
+No suelo sacarme fotos, ergo, subo una foto de hace dos años.
 
 ### Insert Bio
 
